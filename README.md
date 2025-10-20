@@ -63,3 +63,7 @@ MIT — free to use with attribution.
 ## 👤 Author
 **Mohammad Ziaee** — Data & AI Enthusiast  
 📧 moha2012zia@gmail.com · 🔗 https://github.com/ziaee-mohammad
+👉 Instagram: [@ziaee_mohammad](https://www.instagram.com/ziaee_mohammad/)
+
+
+
